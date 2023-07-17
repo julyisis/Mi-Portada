@@ -5,7 +5,7 @@
 
 
 
-[![Whats-App-Image-2023-07-17-at-11-23-34.jpg](https://i.postimg.cc/2y2STSNH/Whats-App-Image-2023-07-17-at-11-23-34.jpg)](https://postimg.cc/jnnTSK5N)
+[![Whats-App-Image-2023-07-17-at-11-23-34.jpg](https://i.postimg.cc/TP02TPpT/Whats-App-Image-2023-07-17-at-11-23-34.jpg)](https://postimg.cc/gwwbDmV7)
 
 ¡¡LENGUAJES!!
 
