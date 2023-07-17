@@ -1,6 +1,5 @@
 # Lenguajes
 
-[![photo-4933835443988966061-x.jpg](https://i.postimg.cc/wTwxB4W8/photo-4933835443988966061-x.jpg)](https://postimg.cc/HV71ZzDB)
 
 
 
